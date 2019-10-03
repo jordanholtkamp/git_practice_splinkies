@@ -1,3 +1,3 @@
 spleebies
 
-and the plorbis
+and the plumbus
